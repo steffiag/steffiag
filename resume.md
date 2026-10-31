@@ -1,3 +1,3 @@
 Steffia George
-Northeastern Student
-In TAMID, Disrupt Consulting, and SGA Software Engineer
+Computer Science and Business Administration (Fintech Concentration) with Math Minor
+Expected Graduation: 2030
